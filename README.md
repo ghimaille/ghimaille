@@ -1,4 +1,4 @@
-# ghimaill's page
+# ghimaille's page
 ### "Procrastination is the key to finishing." - ghimaille, 2024
 I have barely touched GitHub ever...
 
